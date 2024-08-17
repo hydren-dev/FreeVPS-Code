@@ -5,4 +5,4 @@ FREE VPS --->                   [![Binder](https://mybinder.org/badge_logo.svg)]
 
 
 
-..a;..;[.[p=-.]][0.;l/l/al99'\\
+Best VPS Provider in 1 min
